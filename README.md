@@ -1,2 +1,0 @@
-# usmanshaahid.github.io
-Website
